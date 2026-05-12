@@ -1,4 +1,4 @@
-#  
+#  Experience easter tap simulator like never before with automatic Script for easter tap simulator, the #1 Script. Includes speed and one-hit kill for
 
 
 
